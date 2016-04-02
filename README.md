@@ -1,3 +1,3 @@
 # sanidhya-s
 
-#Workina as Software Professional At Oracle Corp
+#Working as Software Professional At Oracle Corp
