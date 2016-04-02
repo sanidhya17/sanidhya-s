@@ -1,4 +1,3 @@
-# sanidhya-s
 
 #ABOUT ME 
 
